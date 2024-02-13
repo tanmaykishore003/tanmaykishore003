@@ -24,8 +24,11 @@ I'm driven by a passion for technology and a deep desire to create innovative so
 
 
 
-#You Can Reach Out Me Here
+# You Can Reach Out Me Here
 
 [LinkedIn](https://www.linkedin.com/in/tanmaykishore003/)
+
 [Gmail](mailto:tanmaykishore003@gmail.com)
+
 [Instagram](https://www.instagram.com/tanmay_kishore/)
+
